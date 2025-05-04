@@ -11,7 +11,7 @@
   ![image](https://github.com/user-attachments/assets/e379e501-f2d8-4e07-acd1-97ba604009cd)
 # Pantalla 4
 - ![image](https://github.com/user-attachments/assets/f8e3089a-a557-4b8f-ad0d-c5257033e61c)
-  ![image](https://github.com/user-attachments/assets/7f7c4f4e-678c-425e-8f91-411ced19871b)
+  ![image](https://github.com/user-attachments/assets/87ae5e36-dd2a-4a41-95e3-03346e4b910c)
 # Pantalla 5
 - ![image](https://github.com/user-attachments/assets/b2172790-72b7-42bb-8224-50856da1dde0)
 # Pantalla 6
